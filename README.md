@@ -5,6 +5,7 @@
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/fc77ff09-c9b0-4cfc-9513-34b5433dbb28)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/0cc85834-137c-485c-92ed-dd58ab5915e0)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/b9a35734-34c1-461f-bb67-119a6ec1d7b5)
+Avaliação
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/68d18e1f-97fc-4c91-817a-b4789d28d16a)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/107cfd08-a0f5-4775-b3a7-dd53ece675b7)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/953e5bd9-0320-476b-bec7-a937fe5e0110)
