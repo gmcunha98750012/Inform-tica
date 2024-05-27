@@ -5,6 +5,7 @@
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/fc77ff09-c9b0-4cfc-9513-34b5433dbb28)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/0cc85834-137c-485c-92ed-dd58ab5915e0)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/b9a35734-34c1-461f-bb67-119a6ec1d7b5)
+![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/5008dffd-3984-42af-87fe-3229b007dd92)
 
 Avaliação
 
