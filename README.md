@@ -1,2 +1,5 @@
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/68d18e1f-97fc-4c91-817a-b4789d28d16a)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/a091fee0-3ae2-48e1-aa5c-ec1557ec8767)
+![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/953e5bd9-0320-476b-bec7-a937fe5e0110)
+![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/b8520503-cf81-4580-9c3f-21ac82f9a7df)
+![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/30033a6b-85aa-412e-8ae5-24040713d2c2)
