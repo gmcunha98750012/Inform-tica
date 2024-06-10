@@ -1,5 +1,6 @@
 # 💻Informática (INF168)
 
+#Apresentação Compartilhada
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/51c86866-29b0-4bc1-b760-29bedde42d25)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/24bee8c0-b283-44b7-9ae2-a2a3df375482)
 ![image](https://github.com/gmcunha98750012/Inform-tica/assets/162647519/a091fee0-3ae2-48e1-aa5c-ec1557ec8767)
